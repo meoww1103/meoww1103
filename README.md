@@ -1,6 +1,7 @@
 # 𝐌𝐞𝐨𝐰 ⦮ ⦯ ⟆
 
 𝓐𝘭𝘸𝘢𝘺𝘴 𝘬𝘦𝘦𝘱 𝘮𝘰𝘷𝘪𝘯𝘨 𝘧𝘰𝘳𝘸𝘢𝘳𝘥, 
+
 <img width="2936" height="1608" alt="Image" src="https://github.com/user-attachments/assets/c380d718-393c-4055-add1-ce6488319530" />
 
 𝓝𝘦𝘷𝘦𝘳 𝘭𝘦𝘵 𝘺𝘰𝘶𝘳𝘴𝘦𝘭𝘧 𝘣𝘦 𝘤𝘰𝘯𝘴𝘵𝘳𝘢𝘪𝘯𝘦𝘥 𝘣𝘺 𝘱𝘰𝘸𝘦𝘳.
